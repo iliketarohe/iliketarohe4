@@ -15,6 +15,7 @@
 ✅ 可用于 ChatGPT / OneDrive / Bing / Skype / Xbox / GitHub 注册等
 
 📦 老号、新号、干净号都能配，工作室/个人/项目方皆可合作！
+
 海外耐用账号出售
 https://guojizhanghao.top 
 
@@ -29,3 +30,5 @@ https://shimingka.top
 
 接码：
 https://kuaijiema.top
+
+<img src="pic/bbb.png" alt="微软邮箱账号购买" border="0">
